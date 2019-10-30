@@ -1,1 +1,0 @@
-# gergaji-simetris
